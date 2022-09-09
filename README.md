@@ -1,2 +1,3 @@
+## 👋 Hi! I'm Danny
 
-(-_-)zzz
+Here is my [LinkedIn](https://www.linkedin.com/in/ndanny).
